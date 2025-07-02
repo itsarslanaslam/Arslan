@@ -8,6 +8,6 @@
 - 💡 Logical Thinker & Problem Solver  
 - ⭐ Skilled JAVA Programmer with hands-on experience  
 
-📬 Want to connect or collaborate? Reach out at: mailto:itsarslanaslam@gmail.com
+📬 Want to connect or collaborate? Reach out at: [itsarslanaslam@gmail.com](mailto:itsarslanaslam@gmail.com)
  
 Let’s build something awesome together! 🚀
